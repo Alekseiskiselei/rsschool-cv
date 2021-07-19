@@ -3,6 +3,7 @@
 Male, 28 years
 
 +375 (29) 1320232
+
 alekseinakhankov@gmail.com — preferred means of communication
 
 **Reside in:** Minsk
@@ -37,13 +38,16 @@ Work with hard clients and clients` objections.
 
 ## **Education**
 
-Higher 2015	Belarusian State University, Minsk
+Higher 2015	Belarusian State University, Minsk  
+
 International relationships, International law
 
 ## **Key skills**
 
-Languages	Belarusian — Native
-English — B2 — Upper Intermediate
+Languages	Belarusian — Native  
+
+English — B2 — Upper Intermediate  
+
 German — A2 — Elementary
 
 
