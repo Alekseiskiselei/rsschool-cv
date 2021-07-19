@@ -14,6 +14,7 @@ alekseinakhankov@gmail.com — preferred means of communication
 
 
 Employment: full time
+
 Work schedule: full day
 
 ## **Work experience** — 6 years 9 months
