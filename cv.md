@@ -5,28 +5,24 @@ Male, 28 years
 +375 (29) 1320232
 alekseinakhankov@gmail.com — preferred means of communication
 
-### Reside in: Minsk
-### Citizenship: Belarus, work permit at: Belarus
-### Not ready to relocate, not ready for business trips
+**Reside in:** Minsk
 
-## **Desired position and salary**
+## **Desired position**
 
 **Front-end Developer**
 
 
-### Employment: full time
-### Work schedule: full day
+Employment: full time
+Work schedule: full day
 
 ## **Work experience** — 6 years 9 months
 October 2020 — till now
 
-Individual entrepreneur
-
-Provision of legal services
+**Individual entrepreneur (legal-advisor)**
 
 June 2014 — October 2020
 
-Worked as a legal advisor in various companies such as: LLC "Glimstedt", LLC «Trade House «Milk hills», LLC "Dobrada"
+Worked as a **legal advisor** in various companies such as: LLC "Glimstedt", LLC «Trade House «Milk hills», LLC "Dobrada"
 
 ## **Obligations**
 
